@@ -1,1 +1,1 @@
-waesdhjlkl https://www.shareway.today/pokemon-go-developer-diary/
+https://www.shareway.today/pokemon-go-developer-diary/
