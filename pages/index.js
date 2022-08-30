@@ -1,1 +1,1 @@
-https://www.shareway.today/pokemon-go-developer-diary/
+What a wonderful full post it is. I am very happy and appreciate your effort. You’re doing a great job. Thanks for sharing your knowledge<a href="https://www.shareway.today/twitch-streamer-earnings-leaderboard-top-50-streamers/"> twitch earnings</a>
